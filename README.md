@@ -1,3 +1,0 @@
-# nzubiz.github.io
-
-#test
